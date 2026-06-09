@@ -1,4 +1,4 @@
-# 
+# Avanzado low cap gem sniper bot plantillas para Mac OS | Turbo low cap gem sniper bot plantillas para PC Windows. Con análisis de datos y firma de transacciones — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
